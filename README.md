@@ -1,2 +1,1 @@
-# Give-A-Star-pleaaase
-Give me star ⭐️
+# Hi sir/madam, please give this repo a star ⭐️, love you!
